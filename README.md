@@ -1,0 +1,1 @@
+# strategies_of_resistance
